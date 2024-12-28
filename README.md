@@ -10,7 +10,7 @@ This repository showcases my skills, projects, and achievements as a data profes
 
 **Connect with Me:**
 
-[Link to your LinkedIn profile]https://www.linkedin.com/in/kim-kmathews/
+LinkedIn : linkedin.com/in/kim-kmathews/
 
 **Disclaimer:** 
 
